@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ST-patrick-AR
 - 👀 I’m interested in YOU
 - 🌱 I’m currently learning YOU
-  - 💞️ I’m looking to collaborate on YOU
+- 💞️ I’m looking to collaborate on YOU
 - 📫 How to reach me ...
 - 😄 Pronouns: boy
 - ⚡ Fun fact: YOU
